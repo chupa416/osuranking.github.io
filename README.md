@@ -1,0 +1,1 @@
+# osuranking.github.io
